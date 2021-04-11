@@ -1,0 +1,1 @@
+Harvest has lots of events all year round. Since I'm new to this school, I don't know much about the events. :/
